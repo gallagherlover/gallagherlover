@@ -6,7 +6,7 @@
 
 <p>no dni, just dont be weird..</p>
 
-<img src="https://media1.tenor.com/m/Motgxwbnz3kAAAAd/ian-mickey.gif" width="600" alt="Ian and Mickey GIF">
+<img src="https://media1.tenor.com/m/Motgxwbnz3kAAAAd/ian-mickey.gif" width="700" alt="Ian and Mickey GIF">
 
 <br><br>
 
