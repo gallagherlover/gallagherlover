@@ -1,16 +1,19 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**gallagherlover/gallagherlover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<pre>
+      _ ^ _ <//
+</pre>
 
-Here are some ideas to get you started:
+<p>no dni, just dont be weird..</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img src="https://media1.tenor.com/m/Motgxwbnz3kAAAAd/ian-mickey.gif" width="500" alt="Ian and Mickey GIF">
+
+<br><br>
+
+18 y.o &nbsp; • &nbsp; C+H ALWAYS,,, &nbsp; • &nbsp; w2i if pony sleep
+
+<br><br>
+
+if u into shameless, interact with me
+
+</div>
