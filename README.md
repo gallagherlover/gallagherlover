@@ -6,11 +6,11 @@
 
 <p>no dni, just dont be weird..</p>
 
-<img src="https://media1.tenor.com/m/Motgxwbnz3kAAAAd/ian-mickey.gif" width="700" alt="Ian and Mickey GIF">
+<img src="https://media1.tenor.com/m/Motgxwbnz3kAAAAd/ian-mickey.gif" width="900" alt="Ian and Mickey GIF">
 
 <br><br>
 
-18 y.o &nbsp; • &nbsp; C+H ALWAYS,,, &nbsp; • &nbsp; w2i if pony sleep
+16 y.o &nbsp; • &nbsp; C+H ALWAYS,,, &nbsp; • &nbsp; w2i if pony sleep
 
 <br><br>
 
